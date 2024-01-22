@@ -11,4 +11,5 @@
 📫 Reach out to me:
 - LinkedIn: www.linkedin.com/in/karan-parge-146977238
 - Email: pargekaran22@gmail.com
+- Twitter: https://twitter.com/PargeKaran
 
